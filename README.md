@@ -1,2 +1,2 @@
-# Varun-39.github.
-contact gmailID - bothravarun39@gmail.com
+# Varun Bothra Portfolio 
+Contact GmailID - bothravarun39@gmail.com
